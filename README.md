@@ -1,6 +1,6 @@
 - 👋 Hi, I’m Rerecraft370
 - 👀 I’m interested in Motorcycles
-- 📫 How to reach me: Discord
+- 📫 How to reach me: Discord @Rs_moto
 - 😄 Pronouns: he/him
 
 <!---
